@@ -18,7 +18,7 @@
 
 Если у вас есть вопросы или предложения о сотрудничестве, не стесняйтесь связаться со мной:
 
-- Telegram: [@b3telgeuser](https://t.me/b3telgeuse)
+- Telegram: [@b3telgeuse](https://t.me/b3telgeuse)
 - Email: [vzbrodov@vk.com](mailto:vzbrodov@vk.com)
 
 Спасибо за внимание!
