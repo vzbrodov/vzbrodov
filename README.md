@@ -1,3 +1,2 @@
-# Привет!
 - Telegram: [@b3telgeuse](https://t.me/b3telgeuse)
 - Email: [vzbrodov@vk.com](mailto:vzbrodov@vk.com)
